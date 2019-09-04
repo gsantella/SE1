@@ -16,4 +16,4 @@
 ## Goals
 #### I plan to graduate with a degree in computer programming during the fall of 2020. I hope to get a job where I can use computers to help change the world for the better. I would love to move further south. I want to travel the world, especially Asia.  I have been studying Japanese and hope to go there soon!
 
-
+:purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart::purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart::purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart: :purple_heart:
